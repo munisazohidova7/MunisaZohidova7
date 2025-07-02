@@ -1,4 +1,4 @@
-👋 Hi, I’m @Munisa Zohidova .<br>
+👋 Hi, I’m Munisa Zohidova .<br>
 😄 Pronouns: She/Her.<br>
 
 
